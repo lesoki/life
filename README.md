@@ -108,3 +108,11 @@ Citations:
 [6] https://goodbooks.pl/inne/gry-edukacyjne-na-urzadzenia-mobilne-sposob-na-ksztaltowanie-kompetencji-i-uczenie-sie-biologii
 [7] https://ksiegarnia-edukacyjna.pl/zabawki/wiek/3-5-lat/3-lata/gry-i-puzzle/gry-edukacyjne.html
 [8] https://pl.khanacademy.org/science/biology/her/evolution-and-natural-selection/a/lines-of-evidence-for-evolution
+
+
+
+---
+
+
+
+
